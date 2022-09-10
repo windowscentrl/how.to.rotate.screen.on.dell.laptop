@@ -1,0 +1,1 @@
+# how.to.rotate.screen.on.dell.laptop
